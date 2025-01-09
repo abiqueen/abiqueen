@@ -2,7 +2,7 @@
 - 👀 I’m interested in network and systems administration, cybersecurity, ethical hacking, and a liittle bit in development.
 - 🌱 I’m currently learning a lot of things in these domains.
 - 📫 How to reach me : here's my email : abigaelnzinkou@gmail.com
-- 😄 Pronouns: Abi.
+- 😄 Pronouns: She
 - ⚡ Fun fact: I like to make mistakes and then resolve them ...
 
 <!---
